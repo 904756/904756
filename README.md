@@ -1,4 +1,4 @@
-![resize1](https://user-images.githubusercontent.com/54028278/225712674-f98fabfa-9e52-44b3-af48-8e076948dffb.jpeg)
+![rsz_resize1](https://user-images.githubusercontent.com/54028278/225713322-e23a6d98-bb2e-4575-b527-0fd658bcc4f7.jpg)
 
 ### Hi there 👋
 
