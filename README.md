@@ -1,5 +1,4 @@
-![pexels-anand-dandekar-1532771](https://user-images.githubusercontent.com/54028278/225712067-aba0db08-e04a-4cca-84dc-2d7217266600.jpg)
-
+![resize1](https://user-images.githubusercontent.com/54028278/225712674-f98fabfa-9e52-44b3-af48-8e076948dffb.jpeg)
 
 ### Hi there 👋
 
