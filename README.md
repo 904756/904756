@@ -3,7 +3,7 @@
 
 ### Hi there 👋
 
-I am an aspiring fullstack developer 👩‍💻                                                      
+I a junior fullstack developer 👩‍💻                                                      
 <!-- -->
 What gives me the greatest joy is learning new things everyday and seeing the results of my work 💙
 
